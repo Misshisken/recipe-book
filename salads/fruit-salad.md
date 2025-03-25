@@ -37,3 +37,6 @@
 
 5. **Serve:**
    - Enjoy the fruit salad as is, or chill it in the refrigerator for about an hour before serving for a refreshing treat.
+     
+6. **Dance:**
+   - Enjoy a dance on the table.
